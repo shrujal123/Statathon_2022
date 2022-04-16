@@ -1,1 +1,1 @@
-# Statathon_2022
+# NESS Statathon 2022
